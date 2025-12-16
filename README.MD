@@ -1,1 +1,0 @@
-https://github.com/wwawwwww/slozhno-sosredotochitsya-ad
